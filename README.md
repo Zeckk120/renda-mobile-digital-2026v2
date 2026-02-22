@@ -1,0 +1,1 @@
+# renda-mobile-digital-2026v2
